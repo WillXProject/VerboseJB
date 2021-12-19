@@ -7,3 +7,20 @@ You can help us grow and expand using our Jailbreak and donating your devices po
 We want Jailbreaking and modding to become free for all!
 
 We just need you and that is all we ask for.
+
+Join us so we can make more tweaks accessible!
+https://discord.gg/DhHjjbR5BR
+
+
+
+Project upkept by:
+
+WillXProject - Founder
+
+Longbow - Discord Manager
+
+Preston - WebDev
+
+Coco - Tester
+
+Thanks for participating!
