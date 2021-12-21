@@ -9,9 +9,8 @@ We want Jailbreaking and modding to become free for all!
 We just need you and that is all we ask for.
 
 Join us so we can make more tweaks accessible!
+
 https://discord.gg/DhHjjbR5BR
-
-
 
 Project upkept by:
 
