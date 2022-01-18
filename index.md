@@ -10,15 +10,13 @@ We just need you and that is all we ask for.
 
 Join us so we can make more tweaks accessible!
 
-https://discord.gg/DhHjjbR5BR
+https://discord.gg/HH3Pr3V2Ty
 
 Project upkept by:
 
 WillXProject - Founder
 
 Longbow - Discord Manager
-
-Preston - WebDev
 
 Coco - Tester
 
